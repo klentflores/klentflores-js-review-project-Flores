@@ -1,3 +1,2 @@
 JAVA SCRIPT
 Java Klent Rice!
-JAVASCRIPTS
