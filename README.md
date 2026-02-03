@@ -1,2 +1,2 @@
 JAVA SCRIPT
-Klent alyas dodong gwaps
+Java Klent Rice!
